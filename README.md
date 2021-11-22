@@ -6,5 +6,4 @@ activited through livestreams, videos, and more.
 CSL Also alerts on rocket launches and events throughout the world.
 
 
-Follow CSL: @ConfirmedSL . 
-Subscribe: youtube.com/c/ConnMC .
+Follow CSL: @ConfirmedSL || Subscribe: youtube.com/c/ConnMC 
